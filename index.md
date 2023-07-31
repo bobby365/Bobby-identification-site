@@ -1,6 +1,6 @@
 There are two ways of verifying me
 
-Keybase: Bobby99as
+Keybase: xxxsupernovaxxx
 
 Email: supernova@bobby99as.me
 
